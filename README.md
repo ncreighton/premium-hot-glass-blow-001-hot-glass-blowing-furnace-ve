@@ -1,0 +1,2 @@
+# premium-hot-glass-blow-001-hot-glass-blowing-furnace-ve
+You've watched master glassblowers shape glowing orbs into elegant vessels, but the thought of standing before a 2000°F furnace yourself feels both thrilling and intimidating. This workshop turns that fear into fuel, giving you the exact step-by-step process to create your first furnace-blown vessel with confidence.  Most beginners hesitate because
